@@ -1,4 +1,4 @@
-# 
+# professional opensea sniper bot | NFT-sniping + liquidity-analysis is the best opensea sniper bot, featuring NFT-sniping and liquidity-analysis. Fast, smart, and optimized for NFT
 
 
 
